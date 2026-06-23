@@ -1,3 +1,3 @@
 ## info !
 
-![hippo](https://i.pinimg.com/736x/e1/28/c0/e128c00f56b727a802a8b13ad2b1afd2.jpg)
+![hippo](<img width="735" height="553" alt="image" src="https://github.com/user-attachments/assets/7c8ac40f-22f8-4761-ab5a-a7d6758e84a8")
