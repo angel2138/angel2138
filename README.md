@@ -4,6 +4,6 @@
 <p align="center">
     <br/>$${\color{#AA0D62}\text{@ angel / kot ; they / them} }$$
     <br/>$${\color{#AA0D62}\text{TiNe sp/sx 6w5 692 LEFV} }$$
-        <br/>$${\color{#AA0D62}\text{INT ; c + h ; preferably w2i , i may be busy / afk} }$$
+        <br/>$${\color{#AA0D62}\text{INT ; c + h ; preferably w2i , i may be busy / afk ; ships DNI} }$$
             <br/>$${\color{#AA0D62}\text{easily overwhelmed online, replies may be delayed.} }$$
                         <br/>$${\color{#AA0D62}\text{DNI: -13 ; basic dni criteria ; i block freely} }$$
