@@ -1,5 +1,5 @@
 
-<p align="center"><img width="468" height="320" alt="image" src="https://cdn.discordapp.com/attachments/1316856131200745493/1519138917075517624/Untitled660_20260624023537.png?ex=6a52389e&is=6a50e71e&hm=2de3163e96317129da61256d35816528317f00dfbb5621505eafa933b3fef986&" />
+<p align="center"><img width="500" height="350" alt="image" src="https://static2.klipy.com/ii/c3a19a0b747a76e98651f2b9a3cca5ff/09/e0/x9VAAmRM.gif" />
 
 <p align="center">
     <br/>$${\color{#AA0D62}\text{@ angel / kot ; they / them} }$$
