@@ -1,5 +1,5 @@
 
-<p align="center"><img width="468" height="320" alt="image" src="https://cdn.discordapp.com/attachments/1316856131200745493/1519138917075517624/Untitled660_20260624023537.png?ex=6a3c77de&is=6a3b265e&hm=cd6fdb5ed7519e94c9bf40bc0664e08e013b11cbad8dda561ab597620ea2bce2&" />
+<p align="center"><img width="468" height="320" alt="image" src="https://cdn.discordapp.com/attachments/1316856131200745493/1519138917075517624/Untitled660_20260624023537.png?ex=6a52389e&is=6a50e71e&hm=2de3163e96317129da61256d35816528317f00dfbb5621505eafa933b3fef986&" />
 
 <p align="center">
     <br/>$${\color{#AA0D62}\text{@ angel / kot ; they / them} }$$
