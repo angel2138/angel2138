@@ -1,7 +1,8 @@
 
-<p align="center"><img width="1000" height="747" alt="image" src="https://i.postimg.cc/ZqbBMyG2/banner.png" />
+<p align="center"><img width="800" height="598" alt="image" src="https://i.postimg.cc/rpZCTkLK/banner.png" />
 
 <p align="center">
+    <br/>$${\color{#754462}\text{WIP !!!!!!!!!!!} }$$
     <br/>$${\color{#754462}\text{@ angel / kot ; 16 ; they / them} }$$
     <br/>$${\color{#754462}\text{TiNe sp/sx 6w5 692 LEFV} }$$
         <br/>$${\color{#754462}\text{INT ; c + h ; preferably w2i , i may be busy / afk} }$$
