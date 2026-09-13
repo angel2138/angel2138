@@ -13,12 +13,16 @@
 <details>
   <summary> about me ⊹ ࣪ ˖</summary>
 <p align="center">
-<br/>$${\color{#754462}\text{WIP !!!!!!!!!!!} }$$
+<br/>$${\color{#754462}\text{nothing too fancy here! my name is angel, but you can also call me kot. while i’m lucky to have awesome friends} }$$
+    <br/>$${\color{#754462}\text{and a lovely partner, i’m always open to making new friends; so feel free to message or whisper me anytime!} }$$
+    <br/>$${\color{#754462}\text{ online spaces can overwhelm me sometimes, so i might come off as a bit dry, but i promise it's never intentional.} }$$
+    <br/>$${\color{#754462}\text{just so you know, i yumeparent subspace (they’re my child, but it’s super casual,, just for fun)! my interests are listed below.} }$$
 </p>
 <div align="center">
 <details>
   <summary> interests </summary>
-   <br/>$${\color{#754462}\text{WIP !!!!!!!!!!!} }$$
+   <br/>$${\color{#754462}\text{jfashion; dolls; collecting; typology; 811; hetalia; satw ; touhou ; vocaloid ; evillious chronicles ; milgram; } }$$
+     <br/>$${\color{#754462}\text{pmmm; nso/ndo; sally face; soulcalibur ; phighting; adopt me; south park} }$$
   <br>   <br>
   </details>
 <br>   <br>
