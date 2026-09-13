@@ -1,6 +1,6 @@
 
 <p align="center"><img width="700" height="523" alt="image" src="https://i.postimg.cc/rpZCTkLK/banner.png" />
-
+<p align="center"><img width="320" height="50" alt="image" src="https://64.media.tumblr.com/046d5b4e7dcc3cc1787649df9882bc5a/6160c30b6178be7e-e6/s2048x3072/12443e10579d0fed6315ae77802a2e37a34e64f3.gifv" />
 <p align="center">
     <br/>$${\color{#754462}\text{───────────────────────────} }$$
     <br/>$${\color{#754462}\text{@ angel / kot ; 16 ,, they / them .𖥔} }$$
@@ -21,3 +21,6 @@
    <br/>$${\color{#754462}\text{WIP !!!!!!!!!!!} }$$
   <br>   <br>
   </details>
+<br>   <br>
+     </details>
+<p align="center"><img width="300" height="50" alt="image" src="https://64.media.tumblr.com/a6018bac2e05ef87ff3d80bf656fd771/6160c30b6178be7e-fb/s2048x3072/9d292eac5f3994dd90d2c614817a4b64b473b95b.pnj" />
