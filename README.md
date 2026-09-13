@@ -1,5 +1,5 @@
 
-<p align="center"><img width="500" height="374" alt="image" src="https://i.postimg.cc/rpZCTkLK/banner.png" />
+<p align="center"><img width="700" height="523" alt="image" src="https://i.postimg.cc/rpZCTkLK/banner.png" />
 
 <p align="center">
     <br/>$${\color{#754462}\text{WIP !!!!!!!!!!!} }$$
