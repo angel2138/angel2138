@@ -1,5 +1,5 @@
 
-<p align="center"><img width="700" height="523" alt="image" src="https://i.postimg.cc/rpZCTkLK/banner.png" />
+<p align="center"><img width="700" height="523" alt="image" src="https://i.postimg.cc/y69yS2HY/banner-(1).png" />
 <p align="center"><img width="320" height="50" alt="image" src="https://64.media.tumblr.com/046d5b4e7dcc3cc1787649df9882bc5a/6160c30b6178be7e-e6/s2048x3072/12443e10579d0fed6315ae77802a2e37a34e64f3.gifv" />
 <p align="center">
     <br/>$${\color{#754462}\text{───────────────────────────} }$$
