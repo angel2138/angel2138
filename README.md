@@ -1,9 +1,9 @@
 
-<p align="center"><img width="500" height="350" alt="image" src="https://static2.klipy.com/ii/c3a19a0b747a76e98651f2b9a3cca5ff/09/e0/x9VAAmRM.gif" />
+<p align="center"><img width="1000" height="747" alt="image" src="https://i.postimg.cc/ZqbBMyG2/banner.png" />
 
 <p align="center">
-    <br/>$${\color{#FED12E}\text{@ angel / kot ; 16 ; they / them} }$$
-    <br/>$${\color{#FED12E}\text{TiNe sp/sx 6w5 692 LEFV} }$$
-        <br/>$${\color{#FED12E}\text{INT ; c + h ; preferably w2i , i may be busy / afk} }$$
-            <br/>$${\color{#FED12E}\text{easily overwhelmed online, replies may be delayed.} }$$
-                        <br/>$${\color{#FED12E}\text{DNI: -13 ; basic dni criteria ; i block freely} }$$
+    <br/>$${\color{#754462}\text{@ angel / kot ; 16 ; they / them} }$$
+    <br/>$${\color{#754462}\text{TiNe sp/sx 6w5 692 LEFV} }$$
+        <br/>$${\color{#754462}\text{INT ; c + h ; preferably w2i , i may be busy / afk} }$$
+            <br/>$${\color{#754462}\text{easily overwhelmed online, replies may be delayed.} }$$
+                        <br/>$${\color{#754462}\text{DNI: -13 ; basic dni criteria ; i block freely} }$$
