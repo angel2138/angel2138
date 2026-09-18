@@ -22,7 +22,7 @@
 <details>
   <summary> interests </summary>
    <br/>$${\color{#754462}\text{jfashion; dolls; collecting; typology; 811; hetalia; satw ; touhou ; vocaloid ; evillious chronicles ; milgram; } }$$
-     <br/>$${\color{#754462}\text{pmmm; nso/ndo; sally face; soulcalibur ; phighting; adopt me; south park} }$$
+     <br/>$${\color{#754462}\text{pmmm; nso/ndo; sally face; ddlc ; nnsg ; soulcalibur ; phighting; adopt me; south park} }$$
   <br>   <br>
   </details>
 <br>   <br>
